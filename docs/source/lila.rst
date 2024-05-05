@@ -1,0 +1,128 @@
+.. dropdown:: Devotees Observation
+==================================
+
+
+1st meet with Srila Prabhupad
+-----------------------------
+**Hridayananda Goswami:** Srila Prabhupada brought me to Krishna consciousness in 1969. I had seen the devotees on the street in Berkeley, and I'd seen the Hare Krishna festival in the Berkeley Hills. I'd given donations, bought magazines, taken prasadam, and so on, but it was when I heard Prabhupada give a lecture in the International House at the University of California at Berkeley that I really became fixed on Krishna consciousness.
+For a sociology/religion class I had to go and observe different religious performances and ceremonies. I had gone to see a so-called swami who seemed like he wasn't saying anything practical or substantial but only telling people how to relax. Just as Prabhupada said that he was reluctant to see his spiritual master because he had seen so many so-called sadhus, so in a little way there is some similarity.
+As soon as Prabhupada entered the auditorium, I could see that this person was very different—his gravity, his power, his demeanor. He came in practically like a military commander, not in the sense of a violent person but in the sense of his authority. I could see that here was a person who was filled with authority and yet serene at the same time. The program started, the devotees began to chant, and Prabhupada got off the vyasasana and began dancing and jumping in ecstasy. To see this holy person, so filled with authority, over 70 years old, dancing in ecstasy, was overwhelming.
+
+Diet of SP
+----------
+**Hari Sauri:** Prabhupada liked to eat fairly simply. His standard fare for breakfast was cut fruits, freshly fried cashew nuts, and, in India, sometimes a bowl of puffed rice and a small sandesh. It was a light breakfast. For lunch, he would have the standard rice, dahl, and chapatis, a wet subji, a dry subji, and maybe a small sweet. If the cook was good, he or she could add to that, but those things had to be there. Prabhupada liked the chapatis to be fresh off the stove. He had a little bell on his table. When you first brought the plate in, there would be one hot chapati on it, and as he finished that one he would ring the bell, and we would immediately puff up another one and run in with it.
+
+Offered with Love
+-----------------
+**Atma Tattva:** The day we inaugurated the bullock cart party, I was asked to bring some prasadam to offer to Prabhupada and give to all the devotees. So, being a stupid South Indian, I brought coconut and gur. That's what prasadam is in South India. But the coconuts I brought were not soft—they were very hard. And the gur was also not first class. So I had a big plate of pieces of coconut and gur. It was brought in front of Prabhupada. Prabhupada looked at it, "What is this?" Lokanath Swami said, "This is prasadam, because they are starting the bullock cart. . . ." "Oh! Bullock cart, oh," and he took a small piece of coconut and gur, put it in his mouth and was talking about the bullock cart party. As he talked, he moved the gur from one side of his mouth to the other, back and forth, and in that way he kept it until it melted and he could eat it. I thought, "I should have asked Lokanath Swami what prasadam to bring. It should have been sandesh." But even though the prasadam was unfit for him, he accepted it. He showed that, "Because you have given it with love, I have taken it."
+
+
+Initiation Inspiration
+======================
+
+Connection to parampara
+-----------------------
+**Atma Tattva:** Everybody was singing Sri Guru Charana Padma while Prabhupada was on the vyasasana with his eyes closed, playing the kartals and singing. I asked Lokanath Swami, "Isn't this song glorifying Prabhupada?" He said, "Yes." I said, "How come he is singing?" He said, "He's singing it to his spiritual master." The day before Lokanath Swami had asked me to put my name in for initiation. I said, "I am not ready yet." After I heard this explanation from Lokanath Swami I said, "You include my name for initiation." He said, "Why now, all of a sudden? You always said, 'Wait, wait, wait,' and now you are ready?" I said, "Yes, I can see that he will be my spiritual master because when he is glorified, he glorifies his spiritual master. Now I know that this is actually part of the disciplic succession. Put my name down for initiation." My name was added, Swami Atmananda. I heard from other God-brothers that when Prabhupada was looking at the names for initiation he said, "Bhakta this, bhakta this, bhakta that," and then he said, "Swami? Who is this swami?" Someone told him "It's a new bhakta." Prabhupada said, "New bhakta, a swami? All right, what's his name, Atmananda?" Then Prabhupada said, "Apasyatam atma tattvam griheshu grihamedi-nam. His name will be Atma Tattva."
+
+
+SP being Personal
+=================
+
+Correct name
+------------
+**Hridayananda Goswami:** When I was initiated in Los Angeles, I got a little piece of paper with my name on it, "Hridayananda." For some reason I thought that someone had left out the "a" and that my name was actually "Haridayananda." When people said, "What's your name?" I said, "Haridayananda". It sounded like a perfectly good, Krishna conscious name. No one ever questioned me. No one ever said, "That doesn't sound like a bonafide name." For the first several months after I was initiated, I was Haridayananda. In fact, there's an old Back to Godhead article by Haridayananda das Brahmachari. Anyway, I wrote Prabhupada a letter about a year after my initiation, and I signed it "Haridayananda." Prabhupada wrote back saying, "Dear Hridayananda, please accept my blessings. By the way, your name is Hridayananda." I thought, "How in the world would Prabhupada remember who I am?" I had no real importance within the structure of ISKCON, as I was just a young member. I was amazed that Prabhupada remembered who I was.
+
+Material life is an infection
+-----------------------------
+**Atma Tattva:** For about two weeks before my initiation on Radhastami Day in Delhi, I had some infection inside my mouth, so I couldn't brush my teeth properly. I was just gargling with hot water and salt. The temple room was small and had a big lotus vyasasana. Prabhupada sat at the edge of the vyasasana, and I was close to him when I got my beads. He asked, "What are the four regulative principles?" I said, "No meat eating . . ." My mouth was close to his nose, and Prabhupada opened his eyes, looked at me, and said, "Why are you not cleaning your teeth properly?" I said, "Infection." He said, "Infection?" and he turned around and took the japa beads from Gopal Krishna and gave them to me, "Chant sixteen rounds." It was as if "infection" was the observation and "chant sixteen rounds" was the prescription. Then he said, "Your name is Atma Tattva das." The devotees banged the mridanga, "Haribol!" and I sat down. I was not there. I was thinking, "I got initiated, I have beads, I have a guru," and I was completely emotional.
+That evening on the lawn in front of the temple, Prabhupada had an evening darshan. I took the chamara and fanned him so that I could be close to him. Most probably I was doing a big number on the chamara, swinging it very fancifully. It was Radhastami so Prabhupada was cold. He looked at me, and then I fanned so slowly that flies were sitting on his face. Again he looked at me while he was singing Jaya Radha Madhava, and I was scared. I didn't know whether to fan fast or slow. But still I did not want to give up fanning him. He said the "Jaya Om" prayers and then, "Thank you very much." Then he looked at me and said, "Material life is an infection." He lifted his kurta and said, "You scratch . . . then you feel satisfied. You scratch more, you feel some satisfaction, and you scratch more. Then you stop. Not because you are satisfied but because blood comes." I didn't hear the rest. I only remember those lines. I was going through my whole life and realizing that this person has gone into me and taken an x-ray and given it to me. He'd caught me exactly, and it was very moving for me. I have heard many disciples say the same thing that "Prabhupada saw through me." I had faith that it happened, but when it happens to you, it's totally different because it's you, and not somebody else. I was very happy.
+
+SP is living SB
+---------------
+**Hari Sauri:** As Srila Prabhupada's servant, the first instruction he gave me was, "Now your only business is to be with me twenty-four hours a day." I took that quite literally except, of course, when I was asleep. When we were in Vrindavan for ten days, I was able to live in his quarters, and I was with him day in and day out. I got a chance to observe everything that he did, everything that he spoke, and every little action that he made. One of the first things that struck me very strongly was that Prabhupada was like a living, breathing Srimad-Bhagavatam.
+In the Bhagavatam and in volumes and volumes of other books, there's a full description of what it means to be Krishna conscious, and if you read them it might seem as if it's going to take a long time to realize such a vast subject as Krishna consciousness. But it was all there in Srila Prabhupada at every moment. I understood that, and I resolved to take advantage of the opportunity to see him as much as possible. By observing how he did everything, how he managed things, how he spoke, how he walked, how he relaxed, how he dealt individually with different people showed me the best example of Krishna consciousness.
+
+
+Devotees feelings about SP
+==========================
+
+Warm and kind
+-------------
+**Hari Sauri:** It was Srila Prabhupada's qualities of warmth and kindness that touched me the most. From being with Prabhupada you could immediately understand that he had a genuine concern for your welfare. He was serving us. He was putting himself out in so many different ways just to give us the opportunity for spiritual life. It made you want to reciprocate by offering whatever service you could to Srila Prabhupada. There was nice reciprocation going on.
+I always felt very comfortable in Prabhupada's presence. Of course, there was the formal guru-disciple relationship, and one had to be careful not to transgress that, but at the same time, Prabhupada was very accommodating. He was wonderfully warm and humble. He always made you feel wanted. He always made you feel significant in some way. He knew what you were doing, and he was happy with it. He would encourage you. He would also chastise you at different times if you did things wrong, but that chastisement had the same effect as his praise—it made you Krishna conscious. You understood that it was for your own benefit. It was never materially motivated.
+Srila Prabhupada was very happy to be with us. He appreciated the fact that young men had given up the best part of their lives for spreading the Krishna consciousness movement, and he always showed that appreciation.
+
+See Krishna everywhere
+----------------------
+**Hari Sauri:** Whenever Prabhupada talked about anything, somehow he would link it to Krishna consciousness and make a spiritual point. For instance, when we were in India he would sometimes talk about how the British ruled and managed India. He would always use that as an example of how we should manage things. Sometimes he would talk about recent Indian history and point out if a person were acting in a spiritual or mundane way. He would relate that to the degradation of Vedic culture.
+Prabhupada had a unique ability to see Krishna in everything and to explain things so that we could also see Him. He was teaching us at every moment. He had no private life, for his was the life of an acharya. That meant that he taught by his example at every moment of every day.
+He was remarkably consistent, absolutely regular. It always amazed me. We traveled all around the world, and he would keep the same schedule. He would do the same things day in and day out and be completely steady and undisturbed. He would be up in the middle of the night translating his books. He would go out for his morning walk. He would take his massages. He would have his meals at the same time, no matter what. It didn't matter where we were going. I suffered from jetlag as we traveled around. Prabhupada seemed completely impervious to it. It just didn't seem to affect him. He would go right on. As soon as we arrived in the new place, he would immediately resume his schedule. He never showed any sign of fatigue or disturbance.
+
+Eat it
+------
+**Hridayananda Goswami:** A young sannyasi is in a precarious position. He has to be very serious about Krishna consciousness. So I was trying very hard to be a good sannyasi, to be Krishna conscious. Then I realized that I was not really Krishna conscious enough, that Prabhupada deserved to be served much better than I felt I was serving him. I was in that mood, a little unhappy, a few months after I had taken sannyas. I thought, "I better eat less." So I was trying to eat very little for a few days.
+Every day in New Dwaraka Prabhupada would walk down the stairs on his way to his garden, stop by the little sannyas room, peek in the door, walk in, look around, walk out, and keep going. That was the signal, and I would immediately jump up, offer obeisances, and run after him. I was trying not to impose on Prabhupada, but every day he would come and get me in that way. So one day we were coming back from the garden, and near the stairway to his quarters, on top of a radiator, there was a paper plate with a big mound of leftover potato or rice prasadam. Prabhupada stopped, put his cane down, looked at it, turned to me, and said, "Eat that." (so much for my austerities.) I immediately offered obeisances, took the plate, and ate the prasadam.
+I was in Prabhupada's room once when Jadurani came in. Her health was not good, and she told Prabhupada that she wanted to fast. Prabhupada told her, "Don't fast completely. It's not good to fast completely. At least take fruit."
+
+Transcendence
+=============
+
+I never forgot Krishna
+----------------------
+**Hridayananda Goswami:** Karandhar and I were in Prabhupada's room in the early seventies. It was a beautiful afternoon, a breeze was blowing, the sun was setting and golden rays were shining on Prabhupada. It was a sublime atmosphere. Prabhupada began to talk about India at the turn of the century. He explained how people used to work, the relationships between the householders and their servants, and how people used to cook. He took us back to his early childhood when he was having Ratha-yatra and worshipping Radha-Govinda. Then he looked at us very strongly and said, "Whatever I am doing now I was doing then. Do you understand?" We were speechless. Prabhupada said, "Never was there a time when I did not know Krishna. Do you understand?" He said it in such a way that it was clearly the case. That was a very powerful experience.
+
+Witty
+=====
+
+Give us everything!
+-------------------
+**Atma Tattva:** One big businessman said, "Swamiji, I have a factory here in Delhi, and I have a factory in Jaipur. . . ." He listed his things and said, "I have all this, but I can't sleep." Prabhupada said, "You can't sleep because you have so many things. Give them to me, then you can sleep peacefully," and he turned to somebody and said, "Take his address." The man said, "No Swamiji, I can come any time." "You can come any time, but we should also be able to go to you any time. Take his address." "No, No Swamiji." Prabhupada said, "If you give some of your things to Krishna, you will be peaceful. We will relieve you of your problem." The man was smashed right there, and he gave his address. He had to.
+
+Who is old?
+-----------
+**Hridayananda Goswami:** At the end of July in 1971, Prabhupada came to Gainesville, Florida. He sat on the vyasasana that we had made for him, gave a beautiful lecture, and then took questions. There was a young girl there, and in a somewhat challenging tone she said to Prabhupada, "I see that you have mostly young people here. Why is that?" Prabhupada immediately shot back, "Why do you have mostly young people in your university?" She was so caught off guard that she dropped her pencil. She stuttered and said, "Well, that's the age for education." He said, "Yes, therefore that is the age for Krishna consciousness."
+A few days before I took sannyas, a reporter was interviewing Prabhupada in his quarters in L.A. This reporter knew something about Hinduism. He said, "Well, isn't it old people that take sannyas in India? Why are you giving sannyas to young people?" Prabhupada shot back, "What does it mean to be old?" The man had no answer. Prabhupada said, "Old means about to die. Can you say that I am older than you? Can you say that you are not going to die before me?" He couldn't answer that. Prabhupada said, "Therefore, we are giving them sannyas."
+
+Heavy
+=====
+
+Miss Mexico
+-----------
+**Hridayananda Goswami:** We brought Miss Mexico to see Srila Prabhupada. In those days we were young and brought any celebrity to Prabhupada. Miss Mexico spent her year doing events, smiling, saying a few nice words and getting her picture taken. She was more or less in that mood. She sat in front of Prabhupada and made her customary spiel, saying in Spanish that it was very nice being Miss Mexico and fluttering her eyelashes. I was translating. She said, "I am very glad to be here. I have enjoyed the program very much and I hope to come again sometime." Prabhupada said to her, "Why do you want to come again?" He was not at all concerned with the glamour of it. He was very sober. She couldn't really answer. No one asks questions like that to Miss Mexico. He asked her very seriously, "Why do you want to come? Have you read my books?" She said, "No." He said, "Then why do you want to come? Why do you say you want to come again?" So she was caught without an answer, and at that point she stopped being Miss Mexico and just started being a soul.
+
+When the appetite comes, it must be fed
+---------------------------------------
+**Hari Sauri:** From Australia we went to New Zealand, but there was nobody who knew how to cook there. So for the first time I had to do the whole thing. I put the cooker on the flame, finished the massage, came back to the cooker, and everything was totally ruined. I had left the flame on too high. All the dahl had dried up at the bottom. The rice was like sludge. It had disintegrated. The vegetables were so soft they fell apart. There was nothing else to cook, and there was nobody else there to do a quick job of cooking either. So I had to serve what I had. When Prabhupada saw it, he was really disappointed. He said, "What is this?" I said, "I must have had the flame too high." Prabhupada said, "You are too dull—you cannot cook." My first attempt was a disaster. I felt really bad. Prabhupada's digestive system was delicate, and it was important that he had a consistent diet. Otherwise he could have all kinds of physical problems.
+Once Palika cooked in Calcutta and was about ten minutes late bringing Prabhupada his prasadam. He got angry about it and chastised her strongly. I hadn't seen him chastise one of his women disciples as strongly as that. He explained, "When the appetite comes, it must be fed. Otherwise disease comes."
+When I was with him I regulated the time for serving his lunch prasadam to 1:30, regardless of when the massage ended. By 1:30 he expected his prasadam to be there. That meant that the thought of eating made the digestive juices in the stomach flow, and then you have to feed it. Otherwise there is disease. It was a science, and Prabhupada was aware of that. Apart from that, Prabhupada had problems digesting food anyway. It was important to give him a high standard of prasadam regularly. Unfortunately, I wasn't very good at cooking it.
+
+Mayawad
+=======
+
+Expert defeater
+---------------
+**Hari Sauri:** On the Disappearance Day of Srila Bhaktisiddhanta Saraswati we were in Bombay, and in the afternoon a lady came for darshan. She was a follower of a well-known Mayavadi guru. During the conversation there was some discussion on the philosophy of the Bhagavad-gita, and she espoused her guru's interpretation of Krishna's words. In Sanskrit the word "Krishna" means "dark." So this so-called guru had written that Krishna means dark. Dark means unknown, and so the absolute is the unknowable, unmanifested supreme. Prabhupada quickly fired back, "Well, if dark means unknown, and if Krishna is unknowable, then he does not know Krishna. So why is he commenting on Krishna's words, the Bhagavad-gita?" He said, "Krishna says that His devotee can know Him. Because this man is not a devotee, he cannot know Krishna. Only devotees can comment on Bhagavad-gita."
+Prabhupada was very expert. He could pick up the basis of anybody's argument immediately. In India there were always a lot of different interpretations, false ideas, and misconstruing of Bhagavad-gita. Prabhupada was expert at keeping a person focused on Krishna, the Supreme Personality of Godhead.
+
+Compassion
+==========
+
+Initiation?
+-----------
+**Atma Tattva:** I was cleaning the temple room in Delhi, and a sixty-year-old gentleman came in and paid his obeisances to the Deities. We started talking, and he found out that I was initiated by Prabhupada. He said, "I want to become a disciple of Swami Prabhupada. I've asked before, but they told me that I have to serve in the temple for six months." Then he showed me that his leg was swollen. He said, "I have a big problem with my leg, and I cannot serve in the temple. Can you please ask Prabhupada to accept me as his disciple anyway?" I said, "You can go to Prabhupada and ask him. He sees people every evening. You come tomorrow and be the first person to see him." I told him to bring an offering for Prabhupada. He said, "Yes, yes, I will do." The next day he came with a big plate covered by a cloth. He was the first person there for the darshan, and I went with him. He put the plate on Prabhupada's desk. Prabhupada looked at him and said, "Yes?" Emotionally, he said, "Prabhupada, I want to chant Hare Krishna." Prabhupada smiled and said, "Who is stopping you? Do you know how to chant Hare Krishna?" The man said, "I know the mantra, Hare Krishna, Hare Krishna, Krishna Krishna, Hare Hare / Hare Rama, Hare Rama, Rama Rama, Hare Hare." Prabhupada said, "Yes," and he took the man's beads and demonstrated, "You start like this and on every bead you chant the whole mantra, 'Hare Krishna, Hare Krishna, Krishna Krishna . . .' " And Prabhupada went to the next bead and then to the next bead. He chanted a whole round and finally said, "Now you chant." I was so blissful. I thought that this man was initiated.
+After traveling for a while I met this man again. He was still chanting, and he had a big picture of Prabhupada in his room. The second time I went to meet him, he had passed away. I heard that they could not take the beads from his hand. In the last two to three weeks of his life he didn't do anything but chant. In the last week he sat in one place, looked at Prabhupada's picture, and chanted. When he left the last thing they heard was his chanting.
+
+Humbled by His Divine Grace
+===========================
+
+College preacher, eh?
+---------------------
+**Hridayananda Goswami:** Often I would enter Prabhupada's room in a serious mood, and he would sometimes joke with me. Once I went into his room with that serious mood, and he looked at me with mock seriousness, "Yes, what is your message?" Another time I was on a college preaching tour, and I went into his room in New York when he was finishing his breakfast. He was in a jolly mood. He said, "Oh! Hridayananda Maharaj, you are traveling and preaching. I am just here eating."
+He was pleased with the college preaching tour, and we talked about it for a while. He gave me a little attention, so I was feeling very happy. "Prabhupada likes my program." But the next day I went into Prabhupada's room thinking, "Well here I am, the college preacher." I sat in front of Prabhupada, and he didn't speak to me. He was doing his business. But there was an innocent young brahmacharini there who was changing Prabhupada's flower vases with devotion. Prabhupada was very pleased with her. He was smiling like a loving grandfather. He said, "Thank you very much. What is your name?" So that day Prabhupada didn't have a word for me, but he was very pleased with the devotion of this young girl. I was a sannyasi, and she was just some innocent girl. But she's the one that pleased Prabhupada, because I was thinking, "I am a sannyasi," and she was an innocent girl serving with great devotion. I never forgot that lesson.
+
+Prasadam
+========
+
+Get people to KC
+----------------
+**Hari Sauri:** Prabhupada explained that one of his strategies for making people Krishna conscious was to distribute profuse amounts of prasadam. He said that people are almost like animals in the way they live. They don't know anything other than their bodies. "At least let them eat prasadam, for that's also Krishna," he said. "Our program is to help people gradually become Krishna conscious. Simply by eating prasadam they'll gradually develop an attraction to Krishna, and when that develops, they'll be able to understand the philosophy simply by eating prasadam." Prasadam distribution was one definite way that people could make some advancement.
