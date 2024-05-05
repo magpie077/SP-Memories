@@ -8,7 +8,7 @@ Welcome to Sp lila's documentation!
 
 .. toctree::
    :maxdepth: 2
-   :caption: Contents:
+   
 
 
 
@@ -16,14 +16,11 @@ Indices and tables
 ==================
 
 * :ref:`genindex`
-* :ref:`modindex`
+   .. toctree::
+      lila.rst
+      :maxdepth: 1
+      
+
 * :ref:`search`
 
-Contents
---------
-
-.. toctree::
-   lila
-
-   :ref:`anarthas <Anarthas>`
 
