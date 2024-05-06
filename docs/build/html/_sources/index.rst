@@ -17,11 +17,17 @@ Indices and tables
 
 * :ref:`genindex`
    .. toctree::
-      lila.rst
-      .. dropdown:: lila.rst
-         new new stuff
-      :maxdepth: 1
-      
+      compassion.rst
+      devFeelings.rst
+      devObv.rst
+      heavy.rst
+      humbled.rst
+      initiationInspiration.rst
+      mayawad.rst
+      personalSP.rst
+      prasadam.rst
+      transcendence.rst
+      witty.rst
 
 * :ref:`search`
 
