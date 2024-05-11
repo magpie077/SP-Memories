@@ -9,3 +9,7 @@ He was pleased with the college preaching tour, and we talked about it for a whi
 Dog for Krishna?
 ----------------
 **Badrinarayana:** Karandhar told me that once Prabhupada was walking in Cheviot Hills, Los Angeles, when they went past a big house. Prabhupada said, "Someday we will have a big house like this for Krishna." The devotees said, "Jaya, Prabhupada!" Prabhupada walked a little further, and there was a big circular driveway with a big stretch limo. Prabhupada said, "Someday we will have a big car like this for Krishna." The devotees said, "Jaya, Prabhupada!" They walked past another house, and out of nowhere a dog came running down the driveway. Prabhupada said, "Someday we will have a big dog like this for Krishna." The devotees said, "Jaya, Prabhupada!" Prabhupada said, "You fools, what do you want a big dog for?"
+
+Books are the basis
+-------------------
+**Badrinarayana:** A devotee was telling Srila Prabhupada that he was selling prasadam, Bengali sweets, at a stand in front of UC Berkeley. He was going on and on about this. Prabhupada stopped him and asked Tripurari, "How many books did you sell?" Tripurari told him some amazing figure. Prabhupada said, "This is the real Bengali sweet, Caitanya-caritamrta."

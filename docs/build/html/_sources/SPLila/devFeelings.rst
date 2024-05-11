@@ -1,0 +1,34 @@
+Devotees feelings about SP
+==========================
+
+Warm and kind
+-------------
+**Hari Sauri:** It was Srila Prabhupada's qualities of warmth and kindness that touched me the most. From being with Prabhupada you could immediately understand that he had a genuine concern for your welfare. He was serving us. He was putting himself out in so many different ways just to give us the opportunity for spiritual life. It made you want to reciprocate by offering whatever service you could to Srila Prabhupada. There was nice reciprocation going on.
+I always felt very comfortable in Prabhupada's presence. Of course, there was the formal guru-disciple relationship, and one had to be careful not to transgress that, but at the same time, Prabhupada was very accommodating. He was wonderfully warm and humble. He always made you feel wanted. He always made you feel significant in some way. He knew what you were doing, and he was happy with it. He would encourage you. He would also chastise you at different times if you did things wrong, but that chastisement had the same effect as his praise—it made you Krishna conscious. You understood that it was for your own benefit. It was never materially motivated.
+Srila Prabhupada was very happy to be with us. He appreciated the fact that young men had given up the best part of their lives for spreading the Krishna consciousness movement, and he always showed that appreciation.
+
+See Krishna everywhere
+----------------------
+**Hari Sauri:** Whenever Prabhupada talked about anything, somehow he would link it to Krishna consciousness and make a spiritual point. For instance, when we were in India he would sometimes talk about how the British ruled and managed India. He would always use that as an example of how we should manage things. Sometimes he would talk about recent Indian history and point out if a person were acting in a spiritual or mundane way. He would relate that to the degradation of Vedic culture.
+Prabhupada had a unique ability to see Krishna in everything and to explain things so that we could also see Him. He was teaching us at every moment. He had no private life, for his was the life of an acharya. That meant that he taught by his example at every moment of every day.
+He was remarkably consistent, absolutely regular. It always amazed me. We traveled all around the world, and he would keep the same schedule. He would do the same things day in and day out and be completely steady and undisturbed. He would be up in the middle of the night translating his books. He would go out for his morning walk. He would take his massages. He would have his meals at the same time, no matter what. It didn't matter where we were going. I suffered from jetlag as we traveled around. Prabhupada seemed completely impervious to it. It just didn't seem to affect him. He would go right on. As soon as we arrived in the new place, he would immediately resume his schedule. He never showed any sign of fatigue or disturbance.
+
+Eat it
+------
+**Hridayananda Goswami:** A young sannyasi is in a precarious position. He has to be very serious about Krishna consciousness. So I was trying very hard to be a good sannyasi, to be Krishna conscious. Then I realized that I was not really Krishna conscious enough, that Prabhupada deserved to be served much better than I felt I was serving him. I was in that mood, a little unhappy, a few months after I had taken sannyas. I thought, "I better eat less." So I was trying to eat very little for a few days.
+Every day in New Dwaraka Prabhupada would walk down the stairs on his way to his garden, stop by the little sannyas room, peek in the door, walk in, look around, walk out, and keep going. That was the signal, and I would immediately jump up, offer obeisances, and run after him. I was trying not to impose on Prabhupada, but every day he would come and get me in that way. So one day we were coming back from the garden, and near the stairway to his quarters, on top of a radiator, there was a paper plate with a big mound of leftover potato or rice prasadam. Prabhupada stopped, put his cane down, looked at it, turned to me, and said, "Eat that." (so much for my austerities.) I immediately offered obeisances, took the plate, and ate the prasadam.
+I was in Prabhupada's room once when Jadurani came in. Her health was not good, and she told Prabhupada that she wanted to fast. Prabhupada told her, "Don't fast completely. It's not good to fast completely. At least take fruit."
+
+Apologizing for being harsh
+---------------------------
+**Jayapataka Swami:** Once he was strongly chastising me and giving me some instruction. The next time I came to see him he had changed his mood. He said, "I am sorry. Maybe I dealt with you too harshly. I am a very hard person to tolerate. I deal very harshly." I couldn't believe Prabhupada said such a thing to me. I said, "No Srila Prabhupada, I was offensive. There was no wrong on your part."
+
+Calm and Composed
+-----------------
+**Jayapataka Swami:** Prabhupada came to Mayapur all of a sudden. The new building wasn't ready, but Prabhupada stayed there, on the third floor, anyway. Since the piping hadn't been connected the toilets didn't flush, and our service was to empty the refuse.
+One day Prabhupada started calling out, "Jayapataka! Jayapataka!" I ran to the bathroom. Prabhupada was holding the door semi-shut. A venomous serpent was stuck in the door and was trying to bite Srila Prabhupada. It was leaping out and just missing him. By the pressure of the door that Prabhupada held, the snake was slightly crushed and couldn't get loose.
+I hit the snake with a stick and got Prabhupada out. This was a very unusual circumstance and an urgent situation, but Prabhupada never lost his composure. He was calling out, but he was cool and calm under the circumstance. Later he said, "If there is one, there must be two, because snakes always go in pairs." But the other one disappeared down the hall. We could never find it.
+
+Poetic
+------
+**Govinda:** Once Prabhupada was sitting on the rooftop of the Honolulu temple getting massaged by Srutakirti. The rooftop of the Honolulu temple faces the back of Nuuanu Valley, which is very beautiful. It usually has a rain cloud the color of Krishna and a rainbow or two. That day there was a rainbow. Prabhupada became very poetic and started talking about how the rainbow has the three colors of material nature. The red for raja guna, the mode of passion, yellow is for sattva guna, the mode of goodness, and blue for tama guna, the mode of ignorance. He explained how all the modes of nature came from these three. Just as all colors are made from a mixture of the primary colors, red, yellow, and blue, so the living entities come from various mixtures of the three gunas—raja, sattva, and tama. It was very poetic and beautiful.

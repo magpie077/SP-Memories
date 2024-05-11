@@ -3,32 +3,30 @@
    You can adapt this file completely to your liking, but it should at least
    contain the root `toctree` directive.
 
-Welcome to Sp lila's documentation!
-===================================
+SP Lila 
+=======
+Remembrances of Srila Prabhupad by Siddhant Das
+-------------------------------------------------
+
+.. nice layout in the toc
 
 .. toctree::
-   :maxdepth: 2
+   :numbered:
+   :maxdepth: 1
    
+   SPLila/SpLila.rst  
+   
+   
+Prayers
+=======
+
+Mukund Mala Stotra
+------------------
+.. toctree::
+   Prayers/mms
+   :numbered:
+   :maxdepth: 1
 
 
-
-Indices and tables
-==================
-
-* :ref:`genindex`
-   .. toctree::
-      compassion.rst
-      devFeelings.rst
-      devObv.rst
-      heavy.rst
-      humbled.rst
-      initiationInspiration.rst
-      mayawad.rst
-      personalSP.rst
-      prasadam.rst
-      transcendence.rst
-      witty.rst
-
-* :ref:`search`
 
 

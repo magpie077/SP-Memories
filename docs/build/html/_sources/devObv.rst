@@ -55,7 +55,9 @@ Healthy? groceries?
 -------------------
 **Jayapataka Swami:** In Montreal we would walk to McGill University or walk around the block, and Prabhupada would make observations. Once he said that if you see a big, healthy person, you can ask him where he does his grocery shopping because, since he's healthy, he must have a good source. It happened that a taxi drove up and the taxi driver was very big. Prabhupada said, "Yes, ask him where he does his shopping." Prabhupada was spontaneous in that way. A devotee asked the taxi driver where he did his shopping, and the taxi driver was bewildered. Why would someone ask him such a question?
 
-
+50% to book Fund
+----------------
+**Badrinarayana:** Tejiyas told me that when Prabhupada came to Delhi they took his vyasasana to the airport and had a reception and arati there. The mayor and some big Life Members attended. Everyone had gathered, and Tejiyas was about to garland Srila Prabhupada when Prabhupada said, "Stop." He said, "What was the collection last month?" Tejiyas said some number. "How much did you send to my book fund?" Tejiyas gave a number that was fifty percent. Prabhupada said, "Begin the arati." The first thing Prabhupada wanted to know was that fifty percent was going to his book fund.
 
 
 

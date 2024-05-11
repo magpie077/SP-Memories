@@ -45,3 +45,6 @@ Brown rice
 ----------
 **Govinda:** When we were in New Jersey all of us used to sit and eat together. Prabhupada sat on the sofa and ate on a little table in front of the sofa, while we sat and ate on the floor. We would talk about different things during the meal. Once we were talking about brown rice, white rice, long grain rice, this rice, that rice, and Prabhupada said he once had a servant who didn't like long grain, fine rice. That servant preferred lesser quality rice. Then Prabhupada said that brown rice was for animals. I said, "Wow! I must be an animal because I like brown rice." He laughed and laughed and laughed. I said it in the mood of simplicity, but he thought it was funny.
 
+Red fire engine
+---------------
+**Badrinarayana:** Prabhupada turned to Ekendra, Rupanuga's son, who was seven or eight years old. He said, "Ekendra, lead kirtan." Little Ekendra sang "Namah om," "Shri Krishna Chaitanya," and "Hare Krishna." When he was done, Prabhupada called him over and gave him a ten dollar bill. He said, "Buy yourself a red fire engine." Then Prabhupada said, "Children like the color red."

@@ -55,7 +55,50 @@ Healthy? groceries?
 -------------------
 **Jayapataka Swami:** In Montreal we would walk to McGill University or walk around the block, and Prabhupada would make observations. Once he said that if you see a big, healthy person, you can ask him where he does his grocery shopping because, since he's healthy, he must have a good source. It happened that a taxi drove up and the taxi driver was very big. Prabhupada said, "Yes, ask him where he does his shopping." Prabhupada was spontaneous in that way. A devotee asked the taxi driver where he did his shopping, and the taxi driver was bewildered. Why would someone ask him such a question?
 
+50% to book Fund
+----------------
+**Badrinarayana:** Tejiyas told me that when Prabhupada came to Delhi they took his vyasasana to the airport and had a reception and arati there. The mayor and some big Life Members attended. Everyone had gathered, and Tejiyas was about to garland Srila Prabhupada when Prabhupada said, "Stop." He said, "What was the collection last month?" Tejiyas said some number. "How much did you send to my book fund?" Tejiyas gave a number that was fifty percent. Prabhupada said, "Begin the arati." The first thing Prabhupada wanted to know was that fifty percent was going to his book fund.
+
+Bath in the Ganges
+------------------
+**Jayapataka Swami:** Sometimes when we walked through the fields in Mayapur, Prabhupada would ask me to lead the way because there were narrow paths between the rice paddies. He said, "These are like little highways in the fields." One winter day we were walking, and he said that he wanted to go to the Ganges. The river was low and clear, with a little saffron color. The flow had reduced so much that we could see the bottom. It was rare to see the Ganges like that. Prabhupada said that we must take bath. His secretary said, "Prabhupada, we don't have any gamshas or towels. We just came for a walk." Prabhupada looked around and said, "There are no women here. We can go in our kopins and then wear the top piece. He took off his top piece and with all the brahmacharis and sannyasis went into the Ganges. Then Prabhupada did something I never saw anyone do before. When he was dipping under, he closed all the holes in his head. He put two fingers over his mouth, two over his nostrils, two over his eyes, and his thumbs over his ears. He took three dips and then came out. It was an ecstatic, spontaneous bath with Srila Prabhupada.
+
+Kumbha Mela
+-----------
+**Badrinarayana:** Everybody told Prabhupada not to go to Kumbha Mela, but at the last minute Prabhupada made his own decision. He was determined to go. The problem was that there was no way to get into the Kumbha Mela because twenty million people were there. No train or bus reservations were available. People were getting there by lying on top and stacking against the walls of trains. Flying in wasn't an option because Prabhupada's doctor said that he shouldn't fly. But, miraculously, a sweet Indian gentleman named Mr. Gupta, who had joined about two months prior, happened to be the Chief Engineer of the Indian Railway System. He added a first class car and a second class car to the train bound for Kumbha Mela. This was totally unheard of in India. Mr. Gupta also arranged for Prabhupada's car to be freshly painted, to have garlands hanging in it, and he arranged for his personal servant to drive with Prabhupada into the Mela. We stopped outside Allahabad in the dark, got off the train, and drove into the Mela. While we were there, Prabhupada wanted milk. There was no way to get milk. I talked to Mr. Gupta, and he arranged for a cow to be brought to our compound in the Mela so that Prabhupada could have fresh milk. Mr. Gupta was wonderful. He also arranged for a train to pick up Prabhupada when he was ready to leave the Mela. In India, making all these arrangements successfully would be considered a miracle.
+
+Loving SP
+---------
+**Badrinarayana:** Prabhupada was sitting on the lawn in New Vrindavan when some simple neighbor, who had heard that Prabhupada was there, came in his pickup truck. He walked up to Srila Prabhupada, said "Got something for you, Swami," and plopped a grocery bag on Prabhupada's lap.
+On one hand Prabhupada was very large. He had a presence that could fill a whole room. But in reality Prabhupada was not very tall, and he was delicate. Prabhupada was sitting there with this big grocery bag full of vegetables on his lap. He reached inside, pulled out a zucchini, and showed it to everybody. He said, "When someone brings you something from their garden hat is love."
+
+Killing silkworm to get silk?
+-----------------------------
+**Govinda:** A devotee sculptor came to visit Prabhupada in Hawaii. This devotee had helped me make some Deities, and at this time Prabhupada wanted him to make some Panchatattva Deities. Prabhupada explained at great length how he wanted the Deities made. After the conversation, this devotee asked Prabhupada if it was okay for his wife to kill silkworms to make silk. After he left Prabhupada said, "These Western boys are so creative. Next they will be asking me if they can kill cows to make mridangas."
 
 
 
 
++------------------------+------------+----------+----------+
+| Header row, column 1   | Header 2   | Header 3 | Header 4 |
+| (header rows optional) |            |          |          |
++========================+============+==========+==========+
+| body row 1, column 1   | column 2   | column 3 | column 4 |
++------------------------+------------+----------+----------+
+| body row 2             | ...        | ...      |          |
++------------------------+------------+----------+----------+
+
+
+=====  =====  =======
+A      B      A and B
+=====  =====  =======
+False  False  False
+True   False  False
+False  True   False
+True   True   True
+=====  =====  =======
+
+`this is a link? <www.abc.com>`_
+
+.. DANGER::
+    What is hell is this??

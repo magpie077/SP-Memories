@@ -17,3 +17,15 @@ Bulls
 Teaching till death
 -------------------
 **Govinda:** The night he had a stroke was very traumatic. He was weak and the boys, Satsvarupa, Brahmananda or whoever was there, would take turns sitting him up, opening the Srimad-Bhagavatam and listening as he continued teaching and reading the story of Prahlad Maharaj. Even though he was apparently suffering and at a very critical time, hovering between life and death, he didn't care. He only cared about teaching us. I was deeply affected at that moment and realized a lot of things. I saw how much he loved us. I had never seen such selfless, pure love. And I realized that he wouldn't be with us very long. I made a vow that I would do everything I could to take care of him, help him, and do whatever I could to make things easier for him.
+
+Feet on head
+------------
+**Jayapataka Swami:** One time Tarun Kanti Ghosh, the Home Minister (the number two person in the state government in charge of the police), came to see Srila Prabhupada. He comes from a family of Vaishnavas. His grandfather said that Bhaktivinode Thakur was the seventh Goswami and wrote a book about Chaitanya Mahaprabhu. Now Tarun, his grandson, was a big politician and the editor of a major newspaper. When he came to see Srila Prabhupada, he went behind Prabhupada's desk and tried to grab Srila Prabhupada's feet. Brahmananda was about to jump on Tarun Kanti Ghosh. Prabhupada said, "No, no. It's all right." Tarun Kanti Ghosh grabbed Prabhupada's feet and put them on his head.
+
+Writing of CC
+-------------
+**Govinda:** When we were living in Los Angeles, I would usually read Caitanya-caritamrta when Prabhupada took his nap. It was a seven-volume edition that Gaurasundar had gotten, translated by some scholar. Krishna das was also reading it. Prabhupada would come in and say, "Oh! What are you reading?" We would say, "This is Caitanya-caritamrta." Prabhupada saw that we were really interested, and he decided to make a good translation of it. He engaged Gaurasundar in the transliteration work, and I started transcribing the tapes for Caitanya-caritamrta. He wanted to give us that because he could see that we were very eager for it.
+
+Around the globe
+----------------
+**Govinda:** I have a color photograph at home showing Prabhupada sitting and holding a globe. He was saying, "Brahmananda will go here, Gargamuni will go here." He was turning the globe and indicating different countries. We were a handful of teenagers who couldn't get it together, who practically didn't know how to brush our teeth, but he had it in mind to send us all over the world to open centers. He was extremely interested in Russia. He always talked about Russia. He wanted the Russian people to receive the mercy of Lord Chaitanya.
