@@ -1,0 +1,6 @@
+Instructions by SP
+==================
+
+Dont give flyers freely
+-----------------------
+**Govinda:** Once in Los Angeles the Jehovah's Witnesses came to visit us and Prabhupada said, "Let them in." I let them in, and they preached their philosophy. Apparently they believe that within this body you become liberated and that this body is eternal. Prabhupada kept asking them, "With this body?" He was incredulous that they could believe that this body was eternal. But he was polite and nice with them. He didn't preach to them, he just wanted know what they were teaching. They gave him some literature, and as they left he had me give them a little brochure about chanting Hare Krishna. It had a drawing of the universal form that I had made and a picture of Lord Vishnu with all His arms. The next morning when he went on his walk, he saw that this brochure had been thrown on the street and run over by a car. He was disturbed that the Lord's picture had been run over. He said, "We should not give out such things freely."

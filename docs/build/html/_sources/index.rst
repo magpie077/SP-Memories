@@ -13,7 +13,7 @@ Remembrances of Srila Prabhupad by Siddhant Das
 .. toctree::
    :numbered:
    :maxdepth: 1
-   
+
    SPLila/SpLila.rst  
    
    
@@ -26,7 +26,4 @@ Mukund Mala Stotra
    Prayers/mms
    :numbered:
    :maxdepth: 1
-
-
-
 

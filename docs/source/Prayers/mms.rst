@@ -24,6 +24,8 @@ nātheti nāga-śayaneti jagan-nivāsety
 
 ālāpinaḿ prati-dinaḿ kuru māḿ mukunda
 
+.. collapse:: Read Translation
+
  O Mukunda, my Lord! Please let me become a constant reciter of Your names, addressing You as Sri-vallabha ["He who is very dear to Laksmi"], Varada ["the bestower of benedictions"], Dayapara ["He who is causelessly merciful"], Bhakta-priya ["He who is very dear to His devotees"], Bhava-lunthana-kovida ["He who is expert at plundering the status quo of repeated birth and death"], Natha ["the Supreme Lord"], Jagan-nivasa ["the resort of the cosmos"], and Naga-sayana ["the Lord who lies down on the serpent bed"]. 
 
 (2)
@@ -36,7 +38,8 @@ jayatu jayatu megha-śyāmalaḥ komalāńgo
 
 jayatu jayatu pṛthvī-bhāra-nāśo mukundaḥ
 
- 
+.. collapse:: Read Translation
+
     All glories to this Personality of Godhead known as the son of Srimati Devaki devi! All glories to Lord Sri Krsna, the brilliant light of the Vrsni dynasty! All glories to the Personality of Godhead, the hue of whose soft body resembles the blackish color of a new cloud! All glories to Lord Mukunda, who removes the burdens of the earth!
 
 
@@ -49,6 +52,8 @@ bhavantaḿ ekāntaḿ iyantam arthaḿ
 avismṛtis tvac-caraṇāravinde
 
 bhave bhave me 'stu bhavat-prasādāt
+
+.. collapse:: Read Translation
 
     O Lord Mukunda! I bow down my head to Your Lordship and respectfully ask You to fulfill this one desire of mine: that in each of my future births I will, by Your Lordship's mercy, always remember and never forget Your lotus feet.
 
@@ -63,6 +68,8 @@ ramyā-rāmā-mṛdu-tanu-latā nandane nāpi rantuḿ
 
 bhāve bhāve hṛdaya-bhavane bhāvayeyaḿ bhavantaḿ
 
+.. collapse:: Read Translation
+
     O Lord Hari, it is not to be saved from the dualities of material existence or the grim tribulations of the Kumbhipaka hell that I pray to Your lotus feet. Nor is my purpose to enjoy the soft-skinned beautiful women who reside in the gardens of heaven. I pray to Your lotus feet only so that I may remember You alone in the core of my heart, birth after birth.
  
 
@@ -76,6 +83,8 @@ etat prārthyaḿ mama bahu mataḿ janma-janmāntare 'pi
 
 tvat-pādāmbhoruha-yuga-gatā niścalā bhaktir astu
 
+.. collapse:: Read Translation
+
     O my Lord! I have no attachment for religiosity, or for accumulating wealth, or for enjoying sense gratification. Let these come as they inevitably must, in accordance with my past deeds. But I do pray for this most cherished boon: birth after birth, let me render unflinching devotional service unto Your two lotus feet.
 
 (6)
@@ -87,6 +96,8 @@ narake vā narakāntaka prakāmaḿ
 avadhīrita-śāradāravindau
 
 caraṇau te maraṇe'pi cintayāmi
+
+.. collapse:: Read Translation
 
     O Lord, killer of the demon Naraka! Let me reside either in the realm of the demigods, in the world of human beings, or in hell, as You please. I pray only that at the point of death I may remember Your two lotus feet, whose beauty defies that of the lotus growing in the Sarat season.
 
@@ -100,6 +111,8 @@ nanda-gopa-tanayaḿ parāt param
 
 nāradādi-muni-vṛnda-vanditam
 
+.. collapse:: Read Translation
+
     I always think of Lord Hari, whose joyful lotus face bears a gentle smile. Although He is the son of the cowherd Nanda, He is also the Supreme Absolute Truth worshiped by great sages like Narada.
 
 (8)
@@ -112,6 +125,9 @@ hari-sarasi vigāhyāpīya tejo-jalaughaḿ
 
 bhava-maru-parikhinnaḥ kleśam adya tyajāmi
 
+.. collapse:: Read Translation
+
+    The desert of material existence has exhausted me. But today I will cast aside all troubles by diving into the lake of Lord Hari and drinking freely of the abundant waters of His splendor. The lotuses in that lake are His hands and feet, and the fish are His brilliant shining eyes. That lake's water relieves all fatigue and is agitated by the waves His arms create. Its current flows deep beyond fathoming.
  
 
 (9)
@@ -124,6 +140,9 @@ sukhataram aparaḿ na jātu jāne
 
 hari-caraṇa-smaraṇāmṛtena tulyam
 
+.. collapse:: Read Translation
+
+    O mind, please never stop taking pleasure in thinking of the Mura demon's destroyer, who has lotus eyes and bears the conch and disc weapon. Indeed, I know of nothing else that gives such extreme pleasure as meditating on Lord Hari's divine feet.
  
 
 (10)
@@ -136,6 +155,9 @@ naivāmī prabhavanti pāpa-ripavaḥ svāmī nanu śrīdharaḥ
 
 lokasya vyasanāpanodana-karo dāsasya kiḿ na kṣamaḥ
 
+.. collapse:: Read Translation
+
+    O foolish mind, stop your fearful fretting about the extensive torments imposed by Yamaraja. How can your enemies, the sinful reactions you have accrued, even touch you? After all, is your master not the Supreme Lord, the husband of Goddess Sri? Cast aside all hesitation and concentrate your thoughts on Lord Narayana, whom one very easily attains through devotional service. What can that dispeller of the whole world's troubles not do for His own servant?
  
 
 (11)
@@ -148,6 +170,9 @@ viṣama-viṣaya-toye majjatām āplavānāḿ
 
 bhavati śaraṇam eko viṣṇu-poto narāṇām
 
+.. collapse:: Read Translation
+
+    The people in this vast ocean of birth and death are being blown about by the winds of material dualities. As they flounder in the perilous waters of sense indulgence, with no boat to help them, they are sorely distressed by the need to protect their sons, daughters, and wives. Only the boat that is Lord Visnu can save them.
  
 
 (12)
@@ -160,6 +185,9 @@ sarasija-dṛśi deve tārakī bhaktir ekā
 
 naraka-bhidi niṣaṇṇā tārayiṣyaty avaśyam
 
+.. collapse:: Read Translation
+
+    Dear mind, do not bewilder yourself by anxiously thinking, How can I cross this fathomless and impassable ocean of material existence? There is one who can save you — Devotion. If you offer her to the lotus-eyed Lord, the killer of Narakasura, she will carry you across this ocean without fail.
  
 
 (13)
@@ -172,6 +200,9 @@ saḿsārākhye mahati jaladhau majjatāḿ nas tri-dhāman
 
 pādāmbhoje varada bhavato bhakti-nāvaḿ prayaccha
 
+.. collapse:: Read Translation
+
+    O Lord of the three worlds, we are drowning in the vast ocean of samsara, which is filled with the waters of material hankering, with many waves of illusion whipped up by the winds of lust, with whirlpools of wives, and with vast schools of sharks and other sea monsters who are our sons and brothers. O giver of all benedictions, please grant me a place on the boat of devotion that is Your lotus feet.
  
 
 (14)
@@ -184,6 +215,9 @@ kṣudrā rudra-pitāmaha-prabhṛtayaḥ kiṭāḥ samastāḥ surā
 
 dṛṣṭe yatra sa tārako vijayate śrī-pāda-dhūli-kaṇāḥ
 
+.. collapse:: Read Translation
+
+    Once our savior has been seen, the whole earth becomes no greater than a speck of dust, all the waters of the ocean become mere droplets, the totality of fire becomes a minute spark, the winds become just a faint sigh, and the expanse of space becomes a tiny hole. Great lords like Rudra and Grandfather Brahma become insignificant, and all the demigods become like small insects. Indeed, even one particle of dust from our Lord's feet conquers all.
  
 
 (15)
@@ -195,6 +229,11 @@ yoga-jñaḥ samudaharanti munayo yaḿ yajñavalkyadayah
 antar-jyotir ameyaḿ ekam amṛtaḿ kṛṣṇakhyam apiyatam
 
 tat pitaḿ paramauṣadhaḿ vitanute nirvanam atyantikam
+
+.. collapse:: Read Translation
+
+    O people, please hear of this treatment for the disease of birth and death! It is the name of Krsna. Recommended by Yajñavalkya and other expert yogis steeped in wisdom, this boundless, eternal inner light is the best medicine, for when drunk it bestows complete and final liberation. Just drink it!
+
 
  
 
@@ -208,6 +247,10 @@ nana-jñanam apasya cetasi namo nārāyaṇayety amum
 
 mantraḿ sa-pranavaḿ pranama-sahitaḿ pravartayadhvaḿ muhuḥ
 
+.. collapse:: Read Translation
+
+    O mortal beings, you have submerged yourselves fully in the ocean of material existence, which is filled with the waves of misfortune. Please hear as I briefly tell you how to attain your supreme benefit. Just put aside your various attempts at gaining knowledge and instead begin constantly chanting the mantra om namo narayanaya and bowing down to the Lord.
+
  
 
 (17)
@@ -220,6 +263,9 @@ yaḿ kañcit puruṣādhamaḿ katipaya-grāmeśam alpārtha-daḿ
 
 sevāyai mṛgayāmahe naram aho mūḍhā varākā vayam
 
+.. collapse:: Read Translation
+
+    Our master, the Personality of Godhead Narayana, who alone rules the three worlds, whom one can serve in meditation, and who happily shares His personal domain, is manifest before us. Yet still we beg for the service of some minor lord of a few villages, some lowly man who can only meagerly reward us. Alas, what foolish wretches we are!
  
 
 (18)
@@ -232,6 +278,7 @@ nityaḿ tvac-caraṇāravinda-yugala-dhyānāmṛtāsvādinām
 
 asmākaḿ sarasīruhākṣa satataḿ sampadyatāḿ jīvitam
 
+.. collapse:: Read Translation
  
 
 (19)
@@ -244,6 +291,7 @@ sā buddhir vimalendu-śańkha-dhavalā yā mādhava-dhyāyinī
 
 sā jiḥvāmṛta-varṣiṇī prati-padaḿ yā stauti nārāyaṇam
 
+.. collapse:: Read Translation
  
 
 (20)
@@ -256,6 +304,7 @@ kṛṣṇaḿ lokaya locana-dvaya harer gacchāńghri-yugmālayam
 
 jighra ghrāṇa mukunda-pada-tulasīḿ mūrdhan namādhokṣajam
 
+.. collapse:: Read Translation
  
 
 (21)
@@ -268,6 +317,7 @@ tīrthānām avagāhanāni ca gaja-snānaḿ vinā yat-pada-
 
 dvandvāmbhoruha-saḿsmṛtiḿ vijayate devaḥ sa nārāyaṇah
 
+.. collapse:: Read Translation
  
 
 (22)
@@ -280,6 +330,7 @@ hara-nayana-kṛśānunā kṛśo'si
 
 smarasi na cakra-parākramaḿ murāreḥ
 
+.. collapse:: Read Translation
  
 
 (23)
@@ -292,6 +343,7 @@ līlāśeṣa-jagat-prapañca-jaṭhare viśveśvare śrīdhare
 
 govinde kuru citta-vṛttim acalam anyais tu kiḿ vartanaiḥ
 
+.. collapse:: Read Translation
  
 
 (24)
@@ -304,6 +356,7 @@ mā smārṣaḿ mādhava tvām api bhuvana-pate cetasāpahnuvānān
 
 mā bhūvaḿ tvat-saparyā-vyatikara-rahito janma-janmāntare'pi
 
+.. collapse:: Read Translation
  
 
 (25)
@@ -316,6 +369,7 @@ tvad-bhṛtya-bhṛtya-paricāraka-bhṛtya-bhṛtya-
 
 bhṛtyasya bhṛtya iti māḿ smara loka-nātha
 
+.. collapse:: Read Translation
  
 
 (26)
@@ -328,6 +382,7 @@ pravartaya prāñjalir asmi jihve
 
 nāmāni nārāyaṇa-gocarāṇi
 
+.. collapse:: Read Translation
  
 
 (27)
@@ -340,6 +395,7 @@ vadāmi nārāyaṇa-nāma nirmalaḿ
 
 smarāmi nārāyaṇa-tattvam avyayam
 
+.. collapse:: Read Translation
  
 
 (28)
@@ -352,6 +408,7 @@ smarāmi nārāyaṇa-tattvam avyayam
 
 śrī-rāma padmākṣa hare murāre
 
+.. collapse:: Read Translation
  
 
 (29)
@@ -364,6 +421,7 @@ vaktuḿ samartho'pi na vakti kaścid
 
 aho janānāḿ vyasanābhimukhyam
 
+.. collapse:: Read Translation
  
 
 (30)
@@ -376,6 +434,7 @@ yaḥ kānta-maṇi-rukmiṇī-ghana-kuca-dvandvaika-bhūṣā-maṇiḥ
 
 śreyo deva-śikhā-maṇir diśatu no gopāla-cūḍā-maṇiḥ
 
+.. collapse:: Read Translation
  
 
 (31)
@@ -388,6 +447,7 @@ sarvaiśvaryaika-mantraḿ vyasana-bhujaga-sandaṣṭa-santrāṇa-mantraḿ
 
 jihve śrī-kṛṣṇa-mantraḿ japa japa satataḿ janma-sāphalya-mantram
 
+.. collapse:: Read Translation
  
 
 (32)
@@ -400,6 +460,7 @@ bhaktātyanta-hitauṣadhaḿ bhava-bhaya-pradhvamsanaikauṣadhaḿ
 
 śreyaḥ-prāpti-karauṣadhaḿ piba manaḥ śrī-kṛṣṇa-divyauṣadham
 
+.. collapse:: Read Translation
  
 
 (33)
@@ -412,6 +473,7 @@ prāṇa-prayāṇa-samaye kapha-vāta-pittaiḥ
 
 kaṇṭhāvarodhana-vidhau smaraṇaḿ kutas te
 
+.. collapse:: Read Translation
  
 
 (34)
@@ -424,6 +486,7 @@ hastāv añjali-sampuṭaḿ racayataḿ vandasva dīrghaḿ vapuḥ
 
 dhanyaḿ puṇyatamaḿ tad eva paramaḿ daivaḿ hi sat-siddhaye
 
+.. collapse:: Read Translation
  
 
 (35)
@@ -436,6 +499,7 @@ notpadyate nayanayor vimalāmbu-mālā
 
 dhik tasya jīvitam aho puruṣādhamasya
 
+.. collapse:: Read Translation
  
 
 (36)
@@ -448,6 +512,7 @@ mohāndha-kūpa-kuhare vinipātitasya
 
 deveśa dehi kṛpāṇasya karāvalambam
 
+.. collapse:: Read Translation
  
 
 (37)
@@ -460,6 +525,7 @@ kim auṣadhaḿ pṛcchasi mūḍha durmate
 
 nirāmayaḿ kṛṣṇa-rasāyaṇaḿ piba 
 
+.. collapse:: Read Translation
  
 
 (38)
@@ -472,6 +538,7 @@ nāmāni nārāyaṇa-gocarāṇi
 
 tyaktvānya-vācaḥ kuhakaḥ paṭhanti
 
+.. collapse:: Read Translation
  
 
 (39)
@@ -484,6 +551,7 @@ tathāpi paramānando
 
 govindo mama jīvanam
 
+.. collapse:: Read Translation
  
 
 (40)
@@ -496,6 +564,7 @@ jīvo japaty anu-dinaḿ maraṇe raṇe vā
 
 pāṣāṇa-kāṣṭha-sadṛśāya dadāty abhīṣṭam
 
+.. collapse:: Read Translation
  
 
 (41)
@@ -508,6 +577,7 @@ saḿsāra-ghora-viṣa-nirharaṇāya nityam
 
 uccaistaraḿ upadiśāmy ahaḿ ūrdhva-bāhuh
 
+.. collapse:: Read Translation
  
 
 (42)
@@ -520,6 +590,7 @@ durvādaḿ parighoṣayantu manujā vaḿśe kalańke'stu vā
 
 tādṛk-prema-dharānurāga-madhunā mattāya mānaḿ tu me
 
+.. collapse:: Read Translation
  
 
 (43)
@@ -532,6 +603,7 @@ kṛṣṇe tiṣṭhati viśvaḿ etad akhilaḿ kṛṣṇasya dāsā vayaḿ
 
 kṛṣṇenākhila-sad-gatir vitaritā kṛṣṇāya tasmai namaḥ
 
+.. collapse:: Read Translation
  
 
 (44)
@@ -544,6 +616,7 @@ he rāmānuja he jagat-traya-guro he puṇḍarīkākṣa māḿ
 
 he gopījana-nātha pālaya paraḿ jānāmi na tvāḿ vinā
 
+.. collapse:: Read Translation
  
 
 (45)
@@ -556,6 +629,7 @@ muktir māyā jagad avikalaḿ tāvakī devakī te
 
 mātā mitraḿ bala-ripu-sutas tat tvad anyaḿ na jāne
 
+.. collapse:: Read Translation
  
 
 (46)
@@ -568,6 +642,7 @@ manaḥ-phalaḿ tad-guṇa-tattva-cintanaḿ
 
 vacaḥ-phalaḿ tad-guṇa-kīrtanaḿ budhāḥ
 
+.. collapse:: Read Translation
  
 
 (47)
@@ -580,6 +655,7 @@ hā naḥ pūrvaḿ vāk-pravṛttā na tasmiḿs
 
 tena prāptaḿ garbha-vāsādi-duḥkham
 
+.. collapse:: Read Translation
  
 
 (48)
@@ -592,6 +668,7 @@ samāhitānāḿ satatābhaya-pradaḿ
 
 te yānti siddhiḿ paramāḿ tu vaiṣṇavīm
 
+.. collapse:: Read Translation
  
 
 (49)
@@ -604,6 +681,7 @@ saḿsāra-sāgara-nimagnam ananta dīnam
 
 uddhartum arhasi hare puruṣottamo'si
 
+.. collapse:: Read Translation
  
 
 (50)
@@ -616,6 +694,7 @@ bhogi-bhoga-śayanīya-śāyine
 
 mādhavāya madhu-vidviṣe namaḥ
 
+.. collapse:: Read Translation
  
 
 (51)
@@ -628,6 +707,7 @@ yadi bhavati mukunde bhaktir ānanda-sāndrā
 
 karatala-kalitā sā mokṣa-samrājya-lakṣmīḥ
 
+.. collapse:: Read Translation
  
 
 (52)
@@ -640,6 +720,7 @@ tenāmbujākṣa-caraṇāmbuja-ṣaṭ-padena
 
 rājñā kṛtā kṛtir iyaḿ kulaśekhareṇa
 
+.. collapse:: Read Translation
  
 
 (53)
@@ -652,6 +733,7 @@ samasta-pāpa-kṣayam etya dehī
 
 prayāti viṣṇoḥ paramaḿ padaḿ tat
 
+.. collapse:: Read Translation
  
 
 TRANSLATION
@@ -663,83 +745,83 @@ TRANSLATION
 
 
 
-8) The desert of material existence has exhausted me. But today I will cast aside all troubles by diving into the lake of Lord Hari and drinking freely of the abundant waters of His splendor. The lotuses in that lake are His hands and feet, and the fish are His brilliant shining eyes. That lake's water relieves all fatigue and is agitated by the waves His arms create. Its current flows deep beyond fathoming.
+1) The desert of material existence has exhausted me. But today I will cast aside all troubles by diving into the lake of Lord Hari and drinking freely of the abundant waters of His splendor. The lotuses in that lake are His hands and feet, and the fish are His brilliant shining eyes. That lake's water relieves all fatigue and is agitated by the waves His arms create. Its current flows deep beyond fathoming.
 
 
 
-9) O mind, please never stop taking pleasure in thinking of the Mura demon's destroyer, who has lotus eyes and bears the conch and disc weapon. Indeed, I know of nothing else that gives such extreme pleasure as meditating on Lord Hari's divine feet.
-
- 
-
-10) O foolish mind, stop your fearful fretting about the extensive torments imposed by Yamaraja. How can your enemies, the sinful reactions you have accrued, even touch you? After all, is your master not the Supreme Lord, the husband of Goddess Sri? Cast aside all hesitation and concentrate your thoughts on Lord Narayana, whom one very easily attains through devotional service. What can that dispeller of the whole world's troubles not do for His own servant?
+2) O mind, please never stop taking pleasure in thinking of the Mura demon's destroyer, who has lotus eyes and bears the conch and disc weapon. Indeed, I know of nothing else that gives such extreme pleasure as meditating on Lord Hari's divine feet.
 
  
 
-11) The people in this vast ocean of birth and death are being blown about by the winds of material dualities. As they flounder in the perilous waters of sense indulgence, with no boat to help them, they are sorely distressed by the need to protect their sons, daughters, and wives. Only the boat that is Lord Visnu can save them.
+3)  O foolish mind, stop your fearful fretting about the extensive torments imposed by Yamaraja. How can your enemies, the sinful reactions you have accrued, even touch you? After all, is your master not the Supreme Lord, the husband of Goddess Sri? Cast aside all hesitation and concentrate your thoughts on Lord Narayana, whom one very easily attains through devotional service. What can that dispeller of the whole world's troubles not do for His own servant?
 
  
 
-12) Dear mind, do not bewilder yourself by anxiously thinking, How can I cross this fathomless and impassable ocean of material existence? There is one who can save you — Devotion. If you offer her to the lotus-eyed Lord, the killer of Narakasura, she will carry you across this ocean without fail.
+4)  The people in this vast ocean of birth and death are being blown about by the winds of material dualities. As they flounder in the perilous waters of sense indulgence, with no boat to help them, they are sorely distressed by the need to protect their sons, daughters, and wives. Only the boat that is Lord Visnu can save them.
 
  
 
-13) O Lord of the three worlds, we are drowning in the vast ocean of samsara, which is filled with the waters of material hankering, with many waves of illusion whipped up by the winds of lust, with whirlpools of wives, and with vast schools of sharks and other sea monsters who are our sons and brothers. O giver of all benedictions, please grant me a place on the boat of devotion that is Your lotus feet.
+5)  Dear mind, do not bewilder yourself by anxiously thinking, How can I cross this fathomless and impassable ocean of material existence? There is one who can save you — Devotion. If you offer her to the lotus-eyed Lord, the killer of Narakasura, she will carry you across this ocean without fail.
 
  
 
-14) Once our savior has been seen, the whole earth becomes no greater than a speck of dust, all the waters of the ocean become mere droplets, the totality of fire becomes a minute spark, the winds become just a faint sigh, and the expanse of space becomes a tiny hole. Great lords like Rudra and Grandfather Brahma become insignificant, and all the demigods become like small insects. Indeed, even one particle of dust from our Lord's feet conquers all.
+6)  O Lord of the three worlds, we are drowning in the vast ocean of samsara, which is filled with the waters of material hankering, with many waves of illusion whipped up by the winds of lust, with whirlpools of wives, and with vast schools of sharks and other sea monsters who are our sons and brothers. O giver of all benedictions, please grant me a place on the boat of devotion that is Your lotus feet.
 
  
 
-15) O people, please hear of this treatment for the disease of birth and death! It is the name of Krsna. Recommended by Yajñavalkya and other expert yogis steeped in wisdom, this boundless, eternal inner light is the best medicine, for when drunk it bestows complete and final liberation. Just drink it!
+7)  Once our savior has been seen, the whole earth becomes no greater than a speck of dust, all the waters of the ocean become mere droplets, the totality of fire becomes a minute spark, the winds become just a faint sigh, and the expanse of space becomes a tiny hole. Great lords like Rudra and Grandfather Brahma become insignificant, and all the demigods become like small insects. Indeed, even one particle of dust from our Lord's feet conquers all.
 
  
 
-16) O mortal beings, you have submerged yourselves fully in the ocean of material existence, which is filled with the waves of misfortune. Please hear as I briefly tell you how to attain your supreme benefit. Just put aside your various attempts at gaining knowledge and instead begin constantly chanting the mantra om namo narayanaya and bowing down to the Lord.
+8)  O people, please hear of this treatment for the disease of birth and death! It is the name of Krsna. Recommended by Yajñavalkya and other expert yogis steeped in wisdom, this boundless, eternal inner light is the best medicine, for when drunk it bestows complete and final liberation. Just drink it!
 
  
 
-17) Our master, the Personality of Godhead Narayana, who alone rules the three worlds, whom one can serve in meditation, and who happily shares His personal domain, is manifest before us. Yet still we beg for the service of some minor lord of a few villages, some lowly man who can only meagerly reward us. Alas, what foolish wretches we are!
+9)  O mortal beings, you have submerged yourselves fully in the ocean of material existence, which is filled with the waves of misfortune. Please hear as I briefly tell you how to attain your supreme benefit. Just put aside your various attempts at gaining knowledge and instead begin constantly chanting the mantra om namo narayanaya and bowing down to the Lord.
 
  
 
-18) O lotus-eyed Lord, please sustain our lives as we constantly relish the nectar of meditating on Your lotus feet, with our palms prayerfully joined, our heads bowed down, our bodily hair standing up in jubilation, our voices choked with emotion, and our eyes flowing with tears.
+10) Our master, the Personality of Godhead Narayana, who alone rules the three worlds, whom one can serve in meditation, and who happily shares His personal domain, is manifest before us. Yet still we beg for the service of some minor lord of a few villages, some lowly man who can only meagerly reward us. Alas, what foolish wretches we are!
 
  
 
-19) That head is the loftiest which is white with dust from bowing down to Lord Krsna. Those eyes are the most beautiful which darkness has abandoned after they have seen Lord Hari. That intelligence is spotless — like the white glow of the moon or a conchshell — which concentrates on Lord Madhava. And that tongue rains down nectar which constantly glorifies Lord Narayana.
+11) O lotus-eyed Lord, please sustain our lives as we constantly relish the nectar of meditating on Your lotus feet, with our palms prayerfully joined, our heads bowed down, our bodily hair standing up in jubilation, our voices choked with emotion, and our eyes flowing with tears.
 
  
 
-20) O tongue, praise the glories of Lord Kesava. O mind, worship the enemy of Mura. O hands, serve the Lord of Sri. O ears, hear the topics of Lord Acyuta. O eyes, gaze upon Sri Krsna. O feet, go to the temple of Lord Hari. O nose, smell the tulasi buds on Lord Mukunda's feet. O head, bow down to Lord Adhoksaja.
+12) That head is the loftiest which is white with dust from bowing down to Lord Krsna. Those eyes are the most beautiful which darkness has abandoned after they have seen Lord Hari. That intelligence is spotless — like the white glow of the moon or a conchshell — which concentrates on Lord Madhava. And that tongue rains down nectar which constantly glorifies Lord Narayana.
 
  
 
-21) All glories to Lord Narayana! Without remembrance of His lotus feet, recitation of scripture is merely crying in the wilderness, regular observance of severe vows enjoined in the Vedas is no more than a way to lose weight, execution of prescribed pious duties is like pouring oblations onto ashes, and bathing at various holy sites is no better than an elephant's bath.
+13) O tongue, praise the glories of Lord Kesava. O mind, worship the enemy of Mura. O hands, serve the Lord of Sri. O ears, hear the topics of Lord Acyuta. O eyes, gaze upon Sri Krsna. O feet, go to the temple of Lord Hari. O nose, smell the tulasi buds on Lord Mukunda's feet. O head, bow down to Lord Adhoksaja.
 
  
 
-22) O Cupid, abandon your residence in my mind, which is now the home of Lord Mukunda's lotus feet. You have already been incinerated by Lord Siva's fiery glance, so why have you forgotten the power of Lord Murari's disc?
+14) All glories to Lord Narayana! Without remembrance of His lotus feet, recitation of scripture is merely crying in the wilderness, regular observance of severe vows enjoined in the Vedas is no more than a way to lose weight, execution of prescribed pious duties is like pouring oblations onto ashes, and bathing at various holy sites is no better than an elephant's bath.
 
  
 
-23) Think only of your master and sustainer, the Supreme Lord, who is known as Narayana and Madhava and who lies on the body of the serpent Ananta. He is the darling son of Devaki, the hero of the demigods, and the Lord of the cows, and He holds a conchshell and the bow Sarnga. He is the husband of the goddess of fortune and the controller of all the universes, which He manifests from His abdomen as a pastime. What will you gain by thinking of anything else?
+15) O Cupid, abandon your residence in my mind, which is now the home of Lord Mukunda's lotus feet. You have already been incinerated by Lord Siva's fiery glance, so why have you forgotten the power of Lord Murari's disc?
 
  
 
-24) O Madhava, please do not let me even glance at those whose pious credits are so depleted that they have no devotion for Your lotus feet. Please do not let me be distracted from listening to the worthy narrations of Your pastimes and become interested in other topics. Please, O Lord of the universe, let me pay no attention to those who avoid thinking of You. And let me never be unable to serve You in some menial way, birth after birth.
+16) Think only of your master and sustainer, the Supreme Lord, who is known as Narayana and Madhava and who lies on the body of the serpent Ananta. He is the darling son of Devaki, the hero of the demigods, and the Lord of the cows, and He holds a conchshell and the bow Sarnga. He is the husband of the goddess of fortune and the controller of all the universes, which He manifests from His abdomen as a pastime. What will you gain by thinking of anything else?
 
  
 
-25) O enemy of Madhu and Kaitabha, O Lord of the universe, the perfection of my life and the most cherished mercy You could show me would be for You to consider me the servant of the servant of the servant of the servant of the servant of the servant of Your servant.
+17) O Madhava, please do not let me even glance at those whose pious credits are so depleted that they have no devotion for Your lotus feet. Please do not let me be distracted from listening to the worthy narrations of Your pastimes and become interested in other topics. Please, O Lord of the universe, let me pay no attention to those who avoid thinking of You. And let me never be unable to serve You in some menial way, birth after birth.
 
  
 
-26) My dear tongue, I stand before you with joined palms and beg you to recite the names of Lord Narayana. These names describing the Supreme Absolute Truth bring great pleasure, as if exuding honey.
+18) O enemy of Madhu and Kaitabha, O Lord of the universe, the perfection of my life and the most cherished mercy You could show me would be for You to consider me the servant of the servant of the servant of the servant of the servant of the servant of Your servant.
 
  
 
-27) At every moment I bow down to the lotus feet of Narayana, I perform worship to Narayana, I recite the pure name of Narayana, and I reflect on the infallible truth of Narayana.
+19) My dear tongue, I stand before you with joined palms and beg you to recite the names of Lord Narayana. These names describing the Supreme Absolute Truth bring great pleasure, as if exuding honey.
+
+ 
+
+20) At every moment I bow down to the lotus feet of Narayana, I perform worship to Narayana, I recite the pure name of Narayana, and I reflect on the infallible truth of Narayana.
 
  
 

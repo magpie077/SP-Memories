@@ -13,3 +13,8 @@ Dog for Krishna?
 Books are the basis
 -------------------
 **Badrinarayana:** A devotee was telling Srila Prabhupada that he was selling prasadam, Bengali sweets, at a stand in front of UC Berkeley. He was going on and on about this. Prabhupada stopped him and asked Tripurari, "How many books did you sell?" Tripurari told him some amazing figure. Prabhupada said, "This is the real Bengali sweet, Caitanya-caritamrta."
+
+Take birth in India to finish KC
+--------------------------------
+**Govinda:** Srila Prabhupada said, "The problem is that the Western boys and girls often go to the other side." I asked, "What do you mean by 'the other side?' Do you mean that they go back to the way they were before they became devotees?" In other words, the tendency is that when devotees stop devotional service, they return to their previous lifestyle. He said, "Yes. They go as they were before. Therefore many of them will have to take birth in India to finish their Krishna consciousness."
+

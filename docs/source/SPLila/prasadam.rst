@@ -16,3 +16,9 @@ Peanut oil
 Not good for Sanyasis
 ---------------------
 **Jayapataka Swami:** Once a Maharaj was cooking hot puris, and we were taking hot puris with date gur, date molasses. Prabhupada looked through the window and saw the sannyasis and brahmacharis taking hot puris with date gur one after another. He said, "This is not very good for sannyas life."
+
+Starvation Committee
+--------------------
+**Gurudas:** Prabhupada, Swamiji at the time, didn't tell us about the vyasasana. He didn't make us cut our hair. He didn't say anything about bowing down. He just accepted things as they were. He accepted us. Krishna had sent us, enthusiastic, young and believing we could do anything. We were adventurous and not too staid in any lifestyle. We were able to go along with and do anything, and that's what happened.
+A New York contingent slowly came to San Francisco. Among them there was an artist, Haridas, Harvey Cohen, who came in an old Cadillac. We called it the "Krishnalac." For some reason Haridas put a totem pole with noses, rings, masks, and moons right by the temple altar in Frederick Street. Prabhupada just accepted it, along with eclectic pictures, pictures of Lord Jesus, and so on. Prabhupada didn't tell us to do too much, but he did teach Yamuna, Harsharani, and Govinda dasi how to cook. Once, when Prabhupada was sick, the doctors told Govinda dasi to give Prabhupada a special diet. Prabhupada called them the "starvation committee." He wanted his standard diet instead.
+

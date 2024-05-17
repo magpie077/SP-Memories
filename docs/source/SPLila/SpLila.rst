@@ -7,6 +7,7 @@
     humble.rst
     humbled.rst
     initiationInspiration.rst
+    instructions.rst
     mayawad.rst
     personalSP.rst
     prasadam.rst
